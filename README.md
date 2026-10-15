@@ -1,1 +1,0 @@
-# semillas-del-saber-app.
